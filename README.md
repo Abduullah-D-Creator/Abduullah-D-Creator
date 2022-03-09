@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abduullah-D-Creator
-- 👀 I’m interested in Womens 
+- 👀 I’m interested in Womans 
 - 🌱 I’m currently learning Programming
 - 📫 How to reach me 03219505224
 
